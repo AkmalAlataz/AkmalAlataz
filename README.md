@@ -1,5 +1,5 @@
 ## Hi I'm Akmal Alataz ✨
-Physics Bachelor student at Gadjah Mada University
+BS Physics student at Gadjah Mada University
 
 
 
